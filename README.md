@@ -1,6 +1,6 @@
 m8sy{amin}
-i code (sometimes)<br>i got more private repos than braincells<br>🐐 
-![3d5e446b3cb149677809e1bd16676ba1](https://github.com/user-attachments/assets/98c989ec-4157-4fb7-9eae-78dce72dca12)
+i code (sometimes)<br>i got more private repos than braincells<br>🐐 ![3d5e446b3cb149677809e1bd16676ba1](https://github.com/user-attachments/assets/c19336ec-706e-47a8-ac94-744887b13705)
+
 
 
 
