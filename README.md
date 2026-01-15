@@ -1,4 +1,4 @@
-# 💫 About Me:
+m8sy{amin}
 i code (sometimes)<br>i got more private repos than braincells<br>🐐
 
 
