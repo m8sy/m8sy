@@ -1,6 +1,8 @@
 m8sy{amin}
 i code (sometimes)<br>i got more private repos than braincells<br>🐐 ![3d5e446b3cb149677809e1bd16676ba1](https://github.com/user-attachments/assets/c19336ec-706e-47a8-ac94-744887b13705)
 
+
+
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/m8sl) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/mlszw) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/mlszw) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:fbquaz15@gmail.com) 
 
