@@ -13,7 +13,7 @@ i code (sometimes)<br>i got more private repos than braincells<br>🐐
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=m8sy&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=m8sy&icon=0&color=0)](https://visitcount.itsvg.in)
+
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->![Language](https://img.shields.io/badge/language-Python-blue)
 
