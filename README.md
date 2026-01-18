@@ -1,6 +1,14 @@
+
                                                       ﹝amin﹞
 
-˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br>  ![3d5e446b3cb149677809e1bd16676ba1](https://github.com/user-attachments/assets/c19336ec-706e-47a8-ac94-744887b13705)
+˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br>  https://github.com/user-attachments/assets/19680d24-d4bc-496b-92da-19b3d150ad35
+
+
+
+
+
+
+
 
 
 
