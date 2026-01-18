@@ -3,6 +3,10 @@
 
 ˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br>  https://github.com/user-attachments/assets/19680d24-d4bc-496b-92da-19b3d150ad35
 
+https://github.com/user-attachments/assets/3029fd70-0f22-42d6-b80b-e81cab1a8b16
+
+
+
 
 
 
