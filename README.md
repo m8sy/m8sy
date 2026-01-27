@@ -1,6 +1,6 @@
  ﹝amin﹞
 
-˔i code (sometimes)<br>˔i got more private repos than braincells🐐 ![Uploading daenerys-targaryen-game-of-thrones-season-8-uhdpaper.com-4K-100.jpg…]()
+˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br>  ![Uploading daenerys-targaryen-game-of-thrones-season-8-uhdpaper.com-4K-100.jpg…]()
 
 
 
