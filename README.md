@@ -1,9 +1,8 @@
  ﹝amin﹞
 
-˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br> 
+˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br> Uploading 6bce3886c05e3974e34cece9b9fb5d4e.mp4…
 
 
-Uploading 6bce3886c05e3974e34cece9b9fb5d4e.mp4…
 
 
 
