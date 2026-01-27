@@ -8,10 +8,8 @@
 
 
 
+![Uploading daenerys-targaryen-game-of-thrones-season-8-uhdpaper.com-4K-100.jpg…]()
 
-
-
-Uploading 6bce3886c05e3974e34cece9b9fb5d4e.mp4…
 
 
 
