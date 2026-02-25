@@ -1,4 +1,4 @@
- ﹝amin﹞
+ Луна прекрасна, не правда ли? 🙄
 
 ˔i code (sometimes)<br>˔i got more private repos than braincells🐐<br>  
 
